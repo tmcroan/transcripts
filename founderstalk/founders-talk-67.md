@@ -100,7 +100,7 @@ And of course, I think it's funny I didn't notice at the time - I still build Ke
 
 **Lynne Tye:** Nice, nice.
 
-**Adam Stacoviak:** We invited our closest friends, so we didn't have to deal with the whole 300 people there, feeding everybody, throwing a big party when it should be around us and \[unintelligible 00:13:58.08\]
+**Adam Stacoviak:** We invited our closest friends, so we didn't have to deal with the whole 300 people there, feeding everybody, throwing a big party when it should be around us and our, you know, our marriage.
 
 **Lynne Tye:** Yeah. Because it's hard to not be about... For you.
 
